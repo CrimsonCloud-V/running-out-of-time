@@ -27,10 +27,10 @@
 
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/3a03d9932e4bde124d3dc1f4791301e6d7dc2787/b5692d412a6a0912d39861145e451646.jpg)
 
-<p align="center">"𝕵𝖆𝖈𝖐𝖕𝖔𝖙!"</p>
-<p align="center">‧₊ ᵎᵎ ⛓️🍒⛓️ ⋅ ˚✮</p>
+<p align="center">"𝕽𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖞𝖔𝖚 𝖘𝖔𝖜."</p>
+<p align="center">‧₊ ᵎᵎ ⛓️🖤⛓️ ⋅ ˚✮</p>
 
 ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/6ec45e8ff930e4ba0c434896b6575a243ea136a3/dd39221539a9b88ba805e6ab6a851a45~2.jpg)
 <p align="center">sʜᴏᴜᴛ ᴏᴜᴛ ᴛᴏ ᴍʏ ғᴀᴠ ᴘᴇʀsᴏɴs; ᴄʀᴏss, ʟᴇʏʟᴇʏ, ᴋᴏɪ, ᴍᴏʀɢᴀɴ, ᴇᴍᴘʏ, ʀᴏᴡʀᴏᴡ, ᴊᴜᴘɪᴛᴇʀ, ɢᴏᴏᴇʏ, sᴜɴᴅᴀᴇ, ᴀʟғɪᴇ <𝟹 !!!!</p>
-<p align="center">"𝚍𝚎𝚟𝚒𝚕𝚜 𝚗𝚎𝚟𝚎𝚛 𝚌𝚛𝚢"</p>
+<p align="center">"ʟɪᴛᴛʟᴇ ᴡᴀɴᴅᴇʀᴇʀ, ʜɪᴇ ᴛʜᴇᴇ ʜᴏᴍᴇ!"</p>
 <p align="center">𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃</p>
