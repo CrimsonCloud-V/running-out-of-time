@@ -1,6 +1,6 @@
 # lets-rock-baby
 
-<p align="center">"𝓣𝓱𝓲𝓼 𝓹𝓪𝓻𝓽𝔂'𝓼 𝓰𝓮𝓽𝓽𝓲𝓷𝓰 𝓬𝓻𝓪𝔃𝔂, 𝓵𝓮𝓽'𝓼 𝓻𝓸𝓬𝓴!"</p>
+<p align="center">"ℳ𝒶𝓎 𝓃ℴ𝓉 𝓂𝓎 𝒻𝓁ℯ𝓈𝒽 𝒻𝒶𝒾𝓁 ℴ𝓃 𝓂ℯ."</p>
 
  ![Alt text](https://github.com/priceoffreedom/lets-rock-baby/blob/72c202d6ab0353312dfa6bfd4895ccf81acb326b/5b431df4d3dc328ebd9c47a6d1c7cf50.gif)
 
